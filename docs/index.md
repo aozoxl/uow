@@ -6,6 +6,8 @@
 
 ![澳大利亚伍伦贡大学毕业证样本（澳洲uow学位文凭证书样式展示）](https://www.cererfi.com/uploads/img1/20261012/6acc2f8d2affd.jpg)
 
+💡 *图片来源声明：该图源自 [https://www.cererfi.com/auzhou/64.html](https://www.cererfi.com/auzhou/64.html) 未经授权禁止用于商业用途。*
+
 ---
 
 ## 2026款伍伦贡大学文凭设计：极简主义与现代徽章美学的碰撞
