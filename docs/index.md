@@ -4,7 +4,7 @@
 
 本文将通过对其最高学术荣誉——**哲学博士（Doctor of Philosophy，简称 PhD）**真实证书样本的深度技术解构，为您全面剖析伍伦贡大学毕业证的排版特征与核心识别密码。
 
-<img width="590" height="800" alt="澳大利亚伍伦贡大学毕业证及学位证文凭样本模版（University of Wollongong diploma）" src="uow-diploma.jpg" />
+<img width="590" height="800" alt="澳大利亚伍伦贡大学毕业证及学位证文凭样本模版（University of Wollongong Diploma/Certificate of Degree）" src="uow-diploma.jpg" />
 
 
 ## 2026款伍伦贡大学文凭设计：极简主义与现代徽章美学的碰撞
